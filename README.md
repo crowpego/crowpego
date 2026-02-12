@@ -1,4 +1,5 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=zyf91q4bfuktowcw80zts8ksn&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=bfe141&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ![](https://files.catbox.moe/9cbz8w.jpg)
-me and the hottie (wren-chan)
+
+me and the cutiepie (wren-chan)
 [2nd rentry!](https://rentry.co/medicaI)
